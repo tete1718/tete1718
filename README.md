@@ -2,7 +2,7 @@
 
 Bem vindos ao meu perfil 💚💚
 
--Meu nome é Maria Teresa 
+-Meu nome é *Maria Teresa**
 
 
 ### Estou estudando na Alura
