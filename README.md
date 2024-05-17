@@ -18,5 +18,4 @@ Bem vindos ao meu perfil 💚💚
 
 ### Você pode entrar em contato comigo 📫
 
-tete172008@gmail.com
-
+tete172008@gmail.com **ou** 00001109944093sp@aluno.educacao.sp.gov.br
