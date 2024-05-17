@@ -1,4 +1,4 @@
-### Oi galera ![](😁🤙)
+### Oi galera!!😁🤙
 
 Bem vindos ao meu perfil 💚💚
 
