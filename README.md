@@ -8,7 +8,9 @@ Bem vindos ao meu perfil 💙💙
 -Estou me desenvolvendo na linguagem JavaScript
 
 -Utilizo esse espaço para minha organização e compartilhamento dos meu projetos desenvolvidos
+
 -Tenho 16 anos
+
 -Amo ouvir música
 
 
