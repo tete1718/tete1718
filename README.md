@@ -1,5 +1,6 @@
-### Oi galera
-Bem vindos ao meu perfil 💙💙
+### Oi galera ![](😁🤙)
+
+Bem vindos ao meu perfil 💚💚
 
 -Meu nome é Maria Teresa 
 
@@ -14,7 +15,8 @@ Bem vindos ao meu perfil 💙💙
 -Amo ouvir música
 
 
-Você pode entrar em contato comigo 📫
+
+### Você pode entrar em contato comigo 📫
 
 tete172008@gmail.com
 
